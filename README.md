@@ -1,16 +1,24 @@
-## Hi there 👋
+<img src="https://64.media.tumblr.com/9c95773f1099daf44c5c75e64cdb4490/c8ff52dcecff15cb-31/s1280x1920/f761327b5a4cd5258cf0d3ebe01564f828770f33.pnj"/>
+‎ ‎
+‎ ‎
+‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎ 
+‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎ my name is nacho / noemi , 
+‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎  5teen and intp + sp5
+‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎ she / any prns
+‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎  
+‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ #1 radiohead fan
+‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎ ‎ huge researcher of many things
+‎ ‎
+‎ ‎
+‎ 
 
-<!--
-**spyndakit/spyndakit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎byf/dni : i block freely, and use jokes that
+‎ ‎are sensitive / sexual
+‎ ‎ ‎ ‎ im lowk controversial
+‎ 
+<img src="https://64.media.tumblr.com/297b6cc444ff424e3f093063058f68af/f0c30f6d36e0d729-9c/s2048x3072/cb15374e9f29e8b9893ecb4a73ab7096fab28940.pnj"/>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ current main interests :‎ ‎ ‎ ‎ ‎ ‎   forsaken, trud, blocktales, DoD, phighting, pressure,‎ ‎ ‎ ‎ ‎  jims computer, lhg, gasa4, frozen soul, life purpose, ‎ ‎ ‎ ‎ ‎ ‎ ‎ rochas, brandonworks, recallahollowheart, seildirectory, facelulz,‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  grocery gang, alonetraveler, ocean terror, mm2012 ‎ ‎ ‎ ‎ ‎ 
+ ‎ 
+ ++ more agrs n myths     
+‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎ 
